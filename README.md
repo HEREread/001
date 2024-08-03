@@ -1,4 +1,4 @@
-# 001lalalalalalalalalala
+Disclaimer: This was meant to be a holiday greeting and not a pit of nonsense, so I’m sending it now.
 connection test
 ok
 start
@@ -82,4 +82,8 @@ VOSMOY (Chuvstvilishche) - Konechnosti (bonus track)
 .
 .
 .
- 
+I just want you to come back and send at least one letter or emoji a year. I just want to know that you’re alive and out there somewhere.
+I feel empty because it was so hard to remember anything. And it was very difficult to leave this message. It reminds me of a childhood incident when someone tried to walk away from me, and I grabbed their hand and didn't let go for a few more minutes. It hurt so much that I always try to leave first or convince myself that I left first.
+I hate being so weak and vulnerable, but now I am immersed in it. For now, I don’t want to let go of your hand.
+If you truly can’t accept me with all my flaws, it changes everything. It would mean we were wrong, and everything we had was a lie and an illusion. Only then can I let go of your hand. If I’m certain of that.
+
