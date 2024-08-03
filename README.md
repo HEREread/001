@@ -91,5 +91,7 @@ If you truly can’t accept me with all my flaws, it changes everything. It woul
 .
 In any case, somewhere deep inside, I will always adore you, and if I’m very lucky, I won't completely lose my mind - when I look at the sky it reminds me of that photo. 
 And if I do forget, you will still visit me in my dreams.
-And if I become so sick, worthless, and unreasonable, it’s probably best that you won't witness it.
+And if I become so sick, worthless, and unreasonable, it’s probably best that you won't witness it.....................................................................................................................................................I’m like a cockroach that would survive even in space. I crawl out of complete shit. I’m a shit beetle. But it feels like your absence is the most dangerous situation I’ve ever been in. I don't need pity; don't pity me—it demeans me. Better to hate me, despise me, or be indifferent to me.
+That’s all. 03.08.2024
+
 
