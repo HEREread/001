@@ -94,4 +94,7 @@ And if I do forget, you will still visit me in my dreams.
 And if I become so sick, worthless, and unreasonable, it’s probably best that you won't witness it.....................................................................................................................................................I’m like a cockroach that would survive even in space. I crawl out of complete shit. I’m a shit beetle. But it feels like your absence is the most dangerous situation I’ve ever been in. I don't need pity; don't pity me—it demeans me. Better to hate me, despise me, or be indifferent to me.
 That’s all. 03.08.2024
 
+## Hashtags
+#001slasREADME.md #itsEVAsorry #HEREread-nick 
+
 
