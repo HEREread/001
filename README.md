@@ -86,4 +86,10 @@ I just want you to come back and send at least one letter or emoji a year. I jus
 I feel empty because it was so hard to remember anything. And it was very difficult to leave this message. It reminds me of a childhood incident when someone tried to walk away from me, and I grabbed their hand and didn't let go for a few more minutes. It hurt so much that I always try to leave first or convince myself that I left first.
 I hate being so weak and vulnerable, but now I am immersed in it. For now, I don’t want to let go of your hand.
 If you truly can’t accept me with all my flaws, it changes everything. It would mean we were wrong, and everything we had was a lie and an illusion. Only then can I let go of your hand. If I’m certain of that.
+.
+.
+.
+In any case, somewhere deep inside, I will always adore you, and if I’m very lucky, I won't completely lose my mind - when I look at the sky it reminds me of that photo. 
+And if I do forget, you will still visit me in my dreams.
+And if I become so sick, worthless, and unreasonable, it’s probably best that you won't witness it.
 
