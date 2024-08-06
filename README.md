@@ -95,7 +95,7 @@ And if I become so sick, worthless, and unreasonable, it’s probably best that 
 That’s all. 03.08.2024
 
 ## Hashtags
-#001slasREADME.md #itsEVAsorry #HEREread-nick 
+ #itsEVAsorry #HEREread-nick 
 
 I want to say that if I could have done something earlier, I would have tried.
 There's so much about me here and very little about you because I'm only beginning to remember things, and right now, it's very little. I remembered the sequences: we stopped talking when I ran away, ruined relationships with everyone, and was left alone. I returned to the place I had to leave, the place I was forced to flee from. I survived. Back then, I had hallucinations and voices in my head, and I didn't sleep for many days.
